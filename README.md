@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @janejanelandolin
-- 👀 I’m interested in biotech and ai
+- 👀 I'm paying attention to biotech and ai
 - 📫 Reach me at janejanelandolin@gmail.com
 - 😄 Pronouns: she/her
 
